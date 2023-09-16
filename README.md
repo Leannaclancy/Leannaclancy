@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Leannaclancy
+- 👀 I’m interested in descion making, human behaviour.
+- 🌱 I’m currently learning behavioural economics
+- 💞️ I’m looking to collaborate on behavioural economics projects
